@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SachinShan
-- 👀 I’m interested in Coading
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning Codes
 - 💞️ I’m looking to collaborate with no one !
 - 📫 How to reach me:- please don't !
